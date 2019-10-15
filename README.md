@@ -1,2 +1,2 @@
 # 239245
-# Majikayo
+# Omae Wa Mou Shinderu
